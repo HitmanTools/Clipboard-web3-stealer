@@ -38,7 +38,7 @@ Use this as a starting point—or “borrow” one. 😉
 
 ⚠️ Use with caution. ⚠️
 
-🔗 💾 Support and Crypter : https://t.me/HitmanDrain
+🔗 💾 Support and Buy Crypter : https://t.me/HitmanDrain
 
 🔗 💾 Telegram Group : https://t.me/+XHrMPhjiudU0NmYx
 
